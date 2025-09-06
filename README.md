@@ -38,7 +38,7 @@ I don’t take part in spawnism at all. Do not mistake my silence for hesitation
 
 
 
-i am befriending, do not fret, i am a *minor*. i was brainwashed by "younger" people not long ago, and I'm recovering.
+i am befriending, do not fret, i am a *minor*.
 
 
 
