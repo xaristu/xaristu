@@ -1,4 +1,4 @@
-![Image](https://github.com/user-attachments/assets/978f62d5-8f75-49da-9dc6-35a919a9375b)
+![Image](https://github.com/user-attachments/assets/ad1ebbb2-977d-4576-aa61-dbe30cfdddb3)
 
 
 
@@ -9,16 +9,14 @@
 
 
 
-Xaristu is a simple, fragile human being who enjoys learning anything. Xaristu enjoys drawing, reading, etc. Xaristu goes by any preferences, but most preferably and comfortable is "He/him". 
+Xaristu is a simple, fragile human being who enjoys learning anything. Xaristu enjoys drawing, reading, etc. Xaristu goes by any preferences, but most preferably and comfortable is "they/them - he/him". 
 
 
 
 #   ★ important 
 
+guyysss I'm not as serious as i seem pllssss I FUCKED UP 23 RELATIONSHIPS HHELLOPPOO pls int with me I'm so poor with socializing nowadays 
 
-
-
-I don’t take part in spawnism at all. Do not mistake my silence for hesitation, and do not think my distance means weakness. I keep myself far removed because I have no need to stoop so low. I will never bow to it, never lend it my attention, never allow it to stain my name. Those who dwell in it can rot there—I stand apart, untouchable.
 
 
 
