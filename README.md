@@ -9,13 +9,13 @@
 
 
 
-Xaristu is a simple, fragile human being who enjoys learning anything. Xaristu enjoys drawing, reading, etc. Xaristu goes by any preferences, but most preferably and comfortable is "they/them - he/him". 
+Xaristu is a simple, fragile human being who enjoys learning anything. Xaristu enjoys drawing, reading, etc. Xaristu goes by any preferences, but most preferably and comfortable is "they/them - she/her". 
 
 
 
 #   ★ important 
 
-guyysss I'm not as serious as i seem pllssss I FUCKED UP 23 RELATIONSHIPS HHELLOPPOO pls int with me I'm so poor with socializing nowadays 
+guyysss I'm not as serious as i seem pllssss I FUCKED UP 23 RELATIONSHIPS HHELLOPPOO im joking i nevrrr dated any1 . pls int with me I'm so poor with socializing nowadays 
 
 
 
